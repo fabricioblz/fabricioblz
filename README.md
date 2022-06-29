@@ -3,14 +3,14 @@
 ## whoami 👨‍💻
 
 An Engineering Manager that promised never to stop coding.
-Technology is very powerful to transform things and I love making part of this,  I wish I could live forever just to watch crazy things happening, and the world changing because of technology
+Technology is very powerful to transform things and I love making part of this,  I wish I could live forever just to watch crazy things happening, and the world changing because of technology.
 
 ## Recent technology I'm interested with 👽
 - Blockchain
 - Typescrispt
 - Node
 
-## I can Spend hours talking about 🗣️
+## Small talk with me for hours about 🗣️
 - Futurism
 - Cultural exposure
 - Movies
