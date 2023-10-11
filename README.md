@@ -13,26 +13,20 @@
 
 ## Bio 🗺️
 
-Embarking on globe-trotting adventures has given me a taste of the world, and I'm insatiable for more. The roadmap of destinations I wish to explore only keeps expanding.
+I have a deep love for travel and an endless list of destinations still to explore. The world is a big place, and I intend to see as much of it as I can.
 
-I'm fascinated by the transformative power of technology. It's not just a career for me; it's a passion that fuels my curiosity. If immortality were possible, I'd seize it in a heartbeat—just to witness the extraordinary technological shifts destined to reshape our world.
+Technology captivates me. It's a tool for incredible change, and I'm thrilled to be a part of this evolving landscape. If given the chance, I'd live eternally just to witness the awe-inspiring innovations yet to come.
 
-Let's dive into deep conversations that stretch on for hours. Whether it's discussing the future through the lens of futurism, exchanging thoughts on cultural paradigms, dissecting the latest movies, strategizing in Dungeons & Dragons, debating philosophical tenets, or simply losing ourselves in the joy of Forró, I'm all ears—and mouth!
+If you're up for a chat, I can keep the conversation going for hours on various topics that intrigue me:
 
-🍩 Let's Talk:
+🍩 Let's Dive In:
 
-Futurism
-Cultural Exposure
-Movies
-D&D, RPGs, and Boardgames
-Philosophy
-Forró
-
-- Futurism
-- Cultural exposure
-- Movies
-- Games
-- Philosophy
+The future and how it might look (Futurism)
+The beauty of experiencing different cultures
+Recent and classic movies that make us think or entertain
+The strategy and fun behind D&D, RPGs, and board games
+The complexities and wonders of philosophy
+The rhythmic allure of Forró dancing
 
 Happy to share knowledge of 📚
 
