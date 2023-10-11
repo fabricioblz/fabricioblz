@@ -13,13 +13,20 @@
 
 ## Bio 🗺️
 
-I've traveled to many places, and I wish to go to many others.
+Embarking on globe-trotting adventures has given me a taste of the world, and I'm insatiable for more. The roadmap of destinations I wish to explore only keeps expanding.
 
-Technology is very powerful to transform things and I love making part of this,
-I wish I could live forever just to watch crazy things happening, and the world
-changing because of technology.
+I'm fascinated by the transformative power of technology. It's not just a career for me; it's a passion that fuels my curiosity. If immortality were possible, I'd seize it in a heartbeat—just to witness the extraordinary technological shifts destined to reshape our world.
 
-Small talk with me for hours about 🍩
+Let's dive into deep conversations that stretch on for hours. Whether it's discussing the future through the lens of futurism, exchanging thoughts on cultural paradigms, dissecting the latest movies, strategizing in Dungeons & Dragons, debating philosophical tenets, or simply losing ourselves in the joy of Forró, I'm all ears—and mouth!
+
+🍩 Let's Talk:
+
+Futurism
+Cultural Exposure
+Movies
+D&D, RPGs, and Boardgames
+Philosophy
+Forró
 
 - Futurism
 - Cultural exposure
