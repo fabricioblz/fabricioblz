@@ -21,12 +21,12 @@ If you're up for a chat, I can keep the conversation going for hours on various 
 
 🍩 Let's Dive In:
 
-The future and how it might look (Futurism)
-The beauty of experiencing different cultures
-Recent and classic movies that make us think or entertain
-The strategy and fun behind D&D, RPGs, and board games
-The complexities and wonders of philosophy
-The rhythmic allure of Forró dancing
+- The future and how it might look (Futurism)
+- The beauty of experiencing different cultures
+- Recent and classic movies that make us think or entertain
+- The strategy and fun behind D&D, RPGs, and board games
+- The complexities and wonders of philosophy
+- Forró dancing
 
 Happy to share knowledge of 📚
 
